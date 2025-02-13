@@ -1,0 +1,1 @@
+# Impactos-socioeconomicos-en-la-mineria
